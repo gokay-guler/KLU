@@ -1,1 +1,1 @@
-http://docdro.id/QbEPSN6
+Analiz raporu ---- http://docdro.id/jm2Vfwd
